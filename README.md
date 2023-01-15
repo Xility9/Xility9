@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Xility9
+- 👋 Hi, I’m @Xility
 - 👀 I’m interested in video games and modding them
 - 🌱 I’m currently learning Wolvenkit
 - 💞️ I’m looking to collaborate on dis dick
